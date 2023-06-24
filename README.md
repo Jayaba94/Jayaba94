@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Jayaba94
+- 👀 I’m interested in computer science.
+- 🌱 I’m currently learning the basics of coding and language.
+- 📫 How to reach me *via email @ jayabarca94@gmail.com
